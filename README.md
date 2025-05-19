@@ -2,7 +2,7 @@
 - 👀 I’m interested in drumming, both acoustic and electric. 
 - 🌱 I’m currently learning Computer Science BS
 - 💞️ I’m looking to collaborate on DIY electric drum - (smart?) wireless drum trigger.
-- 📫 How to reach me ... 
+- 📫 How to reach me: caris.rungkittikhun@my.metrostate.edu
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: ...
 
